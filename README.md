@@ -11,6 +11,6 @@
 
 첫 정규 앨범 《Physics》는 사람의 마음이 움직이는 방식을 아홉 곡으로 담은 앨범입니다. 2025년 8월 28일 발매했습니다.
 
-[《Physics》 전곡 듣기](https://music.bugs.co.kr/album/20750147) · [〈OohWeE〉 비주얼라이저](https://www.youtube.com/shorts/OYeMPHXNfVY) · [〈Fizz〉 비주얼라이저](https://www.youtube.com/shorts/q2MU2EPLj_Y)
+[《Physics》 전곡 듣기](https://music.bugs.co.kr/album/20750147)
 
-[YouTube](https://www.youtube.com/@sonakonadore) · [Instagram](https://www.instagram.com/sonakonadore/) · [네이버 블로그 oi](https://blog.naver.com/sonakonadore)
+[YouTube](https://www.youtube.com/@sonakonadore) · [Instagram](https://www.instagram.com/sonakonadore/) · [네이버 블로그](https://blog.naver.com/sonakonadore)
